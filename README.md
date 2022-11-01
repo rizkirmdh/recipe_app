@@ -1,1 +1,1 @@
-Aplikasi masak2 ecek2nya
+Aplikasi resep masak2 ecek2nya
